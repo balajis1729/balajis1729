@@ -1,6 +1,6 @@
 - 👋 Hi, I’m Balaji
-- 👀 I’m interested in Technology & coding
-- 🌱 I’m currently learning to establish my brnad
+- 👀 I’m interested in Technology & Coding
+- 🌱 I’m currently learning to establish my brand
 - 💞️ I’m looking to collaborate on anything & everything of my interest
 - 📫 How to reach me balajis1729@gmail.com
 - ⚡ Fun fact: ... No code No coffee
